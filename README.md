@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RiverOfCode07
-- 👀 I’m interested in Making Music, Computers, Games, and The Outdoors.
-- 🌱 I’m currently learning the basics!
+- 👀 I’m interested creating music, tinkering with computers,video games, and the outdoors.
+- 🌱 I’m currently learning the basics of coding!
 - 💞️ I’m looking to collaborate on a future project!
 - 📫 How to reach me: YT: @belikemusic4225
 
